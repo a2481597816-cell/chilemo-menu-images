@@ -1,0 +1,1 @@
+# chilemo-menu-images
